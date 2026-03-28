@@ -1,1 +1,1 @@
-# c5_c1_week1_inventory<img width="526" height="808" alt="Captura desde 2026-03-13 07-22-33" src="https://github.com/user-attachments/assets/72522095-92cc-480a-ae94-a74a007f2c12" />
+<img width="3008" height="4728" alt="image" src="https://github.com/user-attachments/assets/b72dc4f4-a2fe-499e-a881-af3d22264446" />
